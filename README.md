@@ -12,4 +12,4 @@ Meu nome é **BEATRIZ CELESTINO**
 
 meu e_mail é celestino.beatriz@escola.pr.gov.br
 
-![](https://media.tenor.com/KmKtcd7wGXwAAAAi/snoopy.gif)
+![](https://media.tenor.com/IMhU430G0ikAAAAM/mafalda-argentina.gif)
